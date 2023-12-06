@@ -1,0 +1,1 @@
+"Cokolwiek na coś"
